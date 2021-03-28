@@ -1,4 +1,4 @@
-Hobbies
+Alex's Hobbies
 
 1) I have always loved stories. Therefore, I became a lover of books, movies, and plays. Video games served as a short addiction in college, but the Sims and I had to go our separate ways.
   a) My favorite authors include Terry Pratchett, Anne Lamott, Jalaluddin Rumi, and Tom Robbins.
